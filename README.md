@@ -1,3 +1,1 @@
-# https://irbala.github.io/abood/
-
-https://shorturl.at/dkyU5
+https://fiotic.github.io/abood/
